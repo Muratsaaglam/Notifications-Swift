@@ -1,4 +1,4 @@
-# Notifications-Swift-Murat-Saglam
+# Notifications-Murat-Saglam
 ✍️Medium Blog Content
 
 My Social Media Accounts :
